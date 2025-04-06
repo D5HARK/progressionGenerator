@@ -82,3 +82,5 @@ Whether you're noodling around with scales or just here for the puns, we hope th
 ---
 
 **Bon Appétit, and may the chord progressions always be in your favor!** 🎶🥢
+
+****Mostly written by chatGPT****
